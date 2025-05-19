@@ -1,1 +1,1 @@
-# Botanix
+# 🪴 Botanix
